@@ -1,14 +1,14 @@
 ### Apurv Bansal
 
-Experienced ecommerce entrepreneur, Google, Elevation Capital, IIT Delhi, Harvard Business School
+Experienced E-Commerce Entrepreneur, Google, Elevation Capital, IIT Delhi, Harvard Business School
 
 [LinkedIn](https://www.linkedin.com/in/bansalapurv)
 
-### Ankush Goyal
+### Saurabh Agrawal
 
-Workflow automation expert, Matrix Partners India, Deutsche Bank, IIT Delhi
+Experienced B2B SaaS Entrepreneur, ex-CEO, ex-Head of Product, Deutsche Bank, IIT Bombay
 
-[LinkedIn](https://www.linkedin.com/in/ankushgoyal35)
+[LinkedIn](https://www.linkedin.com/in/saurabh-agrawal-20312b2a/)
 
 ### Contact Us
 
